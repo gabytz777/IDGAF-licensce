@@ -2,4 +2,4 @@
 
 IDGAF IF YOU USE THIS, IDGAF IF YOU SELL IT, IDGAF IF YOU COPY IT, IDGAF IF U DO ANYTHING WITH MY PRODUCT!!
 
-signed by t3hepikduck on discord
+signed by qpoisoned on discord
